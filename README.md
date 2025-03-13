@@ -1,1 +1,1 @@
-# footxewq.github.io
+# footx.github.io
